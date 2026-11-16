@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Hauborwang.
-- 👀 I’m interested in SCMA & VLC.
+- 👀 I’m interested in you.
 - 🌱 I’m currently learning coding.
 - 💞️ 
 - 📫 
